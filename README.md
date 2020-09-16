@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-### I'm Ramesht
+### I'm Sidaus
 
 
 - 🔭 I’m currently learning Animation and designing.
